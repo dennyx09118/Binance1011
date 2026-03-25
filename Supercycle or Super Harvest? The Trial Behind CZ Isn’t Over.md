@@ -45,7 +45,7 @@ What they can’t tolerate is **losing everything without knowing why.**
 It’s a long-delayed trial of trust.**
 
 -----
-**I. Cathie Wood Lights the Match, Star Xu Sharpens the Knife**
+## I. Cathie Wood Lights the Match, Star Xu Sharpens the Knife
 
 On January 26, **Cathie Wood** dropped four words in a Fox interview:\
 **“software glitch.”**
